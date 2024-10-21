@@ -13,7 +13,7 @@ I also sell **clothing** such as long sleeve t-shirts, with **sandals coming soo
 - **Clothing**: Selling stylish long sleeve tees and more.
 
 ## 🌍 Where to Find Me
-- **Instagram**: [@jaradelite](https://www.instagram.com/jaradelite)  
+- **Instagram**: [@jaradelite](https://www.instagram.com/jaradelitebasketball)  
 - **Twitter**: [@jaradelite](https://x.com/jaradelite)  
 - **TikTok**: [@jaradelite](https://www.tiktok.com/@jaradelite)  
 - **Email**: support@jaradelite.com  
